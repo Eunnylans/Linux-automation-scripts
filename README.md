@@ -224,8 +224,7 @@ By completing this project, I was able to:
 
 ## 📌 Author
 
-**Student / Trainee:**
-**Eunice Igbinedion**
+Eunice Abieyuwa Igbinedion
 
 ---
 
